@@ -1,4 +1,6 @@
-para as fontes usei apenas videos do youtub, que seram inumerados abaixo e com os seus respectivos links:
+para as fontes usei apenas videos do youtub, que seram inumerados abaixo e com os seus respectivos link😊😍👀s:
+
+
 1- 17 lições sobre dinheiro- A spicología do dinheiro sendo " Morgan Housel"
 link:https://youtu.be/PHrOeiv5e8E?list=TLGGjnyZeZkEYBgxMjAyMjAyNg.
 canal: um pouco melhor.
